@@ -1,0 +1,1 @@
+# Hostinger Review & Coupon Codes - Updated April 2025
